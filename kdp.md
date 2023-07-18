@@ -10,7 +10,6 @@ Through exploring topics such as neural networks, cognitive flexibility, and div
 
 Whether you're looking to improve your concentration, boost your productivity, or unleash your creativity, The Science of Creativity provides a roadmap for unlocking your full potential. With this book as your guide, you'll learn how to tap into your brain's full creative potential and achieve success in any field.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
