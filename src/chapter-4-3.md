@@ -1,4 +1,4 @@
-Chapter: Building Habits that Support Creative Thinking
+Building Habits that Support Creative Thinking
 =======================================================
 
 In this chapter, we will explore the importance of building habits that support creative thinking. By cultivating daily routines and practices that enhance your concentration, foster innovation, and stimulate your creative brain, you can unlock your full creative potential.

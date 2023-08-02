@@ -1,4 +1,4 @@
-Chapter: The Science of Divergent and Convergent Thinking
+The Science of Divergent and Convergent Thinking
 =========================================================
 
 In this chapter, we will delve into the science behind divergent and convergent thinking, two crucial cognitive processes involved in creative thinking. Understanding how these thinking modes work can help us optimize our cognitive abilities and enhance our creative problem-solving skills.

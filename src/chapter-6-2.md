@@ -1,4 +1,4 @@
-Chapter: Using Criteria to Select the Best Ideas
+Using Criteria to Select the Best Ideas
 ================================================
 
 In this chapter, we will explore the importance of using criteria to select the best ideas in the creative process. By understanding how to evaluate and prioritize ideas effectively, you can enhance your concentration, foster innovation, and maximize the impact of your creative endeavors.

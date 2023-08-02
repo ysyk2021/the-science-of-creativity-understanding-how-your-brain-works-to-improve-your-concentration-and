@@ -1,4 +1,4 @@
-Chapter: Techniques for Generating Ideas
+Techniques for Generating Ideas
 ========================================
 
 In this chapter, we will explore various techniques for generating ideas and unlocking your creative potential. Idea generation is a critical step in the creative process and plays a significant role in improving concentration and fostering innovation. By utilizing these techniques, you can enhance your ability to generate a wide range of ideas and tap into your creative thinking abilities.

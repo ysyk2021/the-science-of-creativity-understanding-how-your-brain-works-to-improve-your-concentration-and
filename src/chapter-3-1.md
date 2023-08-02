@@ -1,4 +1,4 @@
-Chapter: Understanding Attention and Concentration
+Understanding Attention and Concentration
 ==================================================
 
 Attention and concentration are crucial cognitive processes that play a vital role in creativity, problem-solving, and innovation. This chapter dives into the science behind attention and concentration, exploring how they work and providing techniques to improve these cognitive abilities.
