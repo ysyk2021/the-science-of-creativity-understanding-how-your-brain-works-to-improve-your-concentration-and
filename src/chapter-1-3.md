@@ -1,5 +1,3 @@
-The Role of the Science of Creativity
-==============================================
 
 The science of creativity provides valuable insights into how our brains work and offers practical strategies to enhance concentration and innovation. This chapter explores the significance of understanding the science of creativity and its relevance in various aspects of our lives.
 

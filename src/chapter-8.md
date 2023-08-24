@@ -1,5 +1,3 @@
-Chapter 7: Sustaining Creativity
-================================
 
 In this chapter, we will discuss strategies for sustaining creativity over time. Creativity is not a one-time event but rather a continuous process that requires nurturing and maintenance. By maintaining motivation and momentum, creating a culture of creativity, and committing to lifelong learning and growth, you can sustain your creativity and continue to innovate.
 

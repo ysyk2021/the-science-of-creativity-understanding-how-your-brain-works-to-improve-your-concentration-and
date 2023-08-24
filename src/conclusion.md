@@ -1,4 +1,3 @@
-# Conclusion
 
 The Ongoing Journey of Enhancing Creativity
 -------------------------------------------

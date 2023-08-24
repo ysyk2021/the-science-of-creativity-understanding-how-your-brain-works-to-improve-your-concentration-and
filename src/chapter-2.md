@@ -1,5 +1,3 @@
-Chapter 1: The Neuroscience of Creativity
-=========================================
 
 In this chapter, we will explore the neuroscience behind creativity. By understanding how the brain works during creative thinking, as well as the science of divergent and convergent thinking, we can gain a better understanding of how to cultivate creativity in our personal and professional pursuits.
 

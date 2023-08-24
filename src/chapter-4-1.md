@@ -1,5 +1,3 @@
-Developing a Routine That Fosters Creativity
-=====================================================
 
 In this chapter, we will explore the importance of developing a routine that fosters creativity. By establishing consistent habits and creating an environment conducive to creative thinking, you can enhance your concentration, boost innovation, and unlock your creative potential.
 

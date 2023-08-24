@@ -1,5 +1,3 @@
-Leveraging Constraints and Limitations to Enhance Creativity
-=====================================================================
 
 In this chapter, we will explore the concept of leveraging constraints and limitations to enhance creativity. While constraints are often viewed as obstacles to overcome, they can actually serve as catalysts for innovation and fuel for creative thinking. Understanding how to harness these constraints can help us unlock new possibilities, think outside the box, and foster breakthrough ideas.
 

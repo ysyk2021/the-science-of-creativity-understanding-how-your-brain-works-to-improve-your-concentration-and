@@ -1,5 +1,3 @@
-Overcoming Resistance to Change
-========================================
 
 In this chapter, we will explore the concept of overcoming resistance to change and how it impacts our ability to improve concentration and foster innovation. Understanding the reasons behind resistance to change and learning strategies to overcome it can help you embrace new ideas and approaches more effectively. This chapter will provide you with insights and techniques to navigate through resistance and cultivate a mindset of adaptability and growth.
 

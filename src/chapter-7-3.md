@@ -1,5 +1,3 @@
-Incorporating Creativity into Problem-Solving
-======================================================
 
 In this chapter, we will explore the integration of creativity into problem-solving and how it can enhance your concentration and innovation. By combining analytical thinking with creative approaches, you can develop unique solutions to complex problems. This chapter will provide insights and techniques to help you incorporate creativity into your problem-solving process effectively.
 

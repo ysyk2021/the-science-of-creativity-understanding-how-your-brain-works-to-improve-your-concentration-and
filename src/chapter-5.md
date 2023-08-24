@@ -1,5 +1,3 @@
-Chapter 4: Generating Creative Ideas
-====================================
 
 Generating creative ideas is a critical component of the creative process. In this chapter, we will explore techniques for generating ideas, overcoming creative blocks, and leveraging constraints to enhance creativity.
 

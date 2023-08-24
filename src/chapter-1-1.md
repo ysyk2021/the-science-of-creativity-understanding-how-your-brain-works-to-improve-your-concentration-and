@@ -1,5 +1,3 @@
-Why Creativity is Important
-====================================
 
 Creativity is a fundamental aspect of human cognition and plays a pivotal role in improving concentration, fostering innovation, and driving personal and societal growth. In this chapter, we will explore the significance of creativity and how it impacts various aspects of our lives.
 

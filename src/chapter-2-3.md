@@ -1,5 +1,3 @@
-Common Myths about Creativity and the Brain
-====================================================
 
 In this chapter, we will debunk common myths surrounding creativity and its relationship with the brain. By dispelling these misconceptions, we can gain a clearer understanding of the scientific reality behind creative thinking.
 

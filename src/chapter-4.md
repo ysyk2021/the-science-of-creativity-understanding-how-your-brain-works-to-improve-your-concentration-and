@@ -1,5 +1,3 @@
-Chapter 3: Cultivating Creative Habits
-======================================
 
 In this chapter, we will discuss the importance of cultivating creative habits to foster a mindset of innovation and generate new ideas.
 

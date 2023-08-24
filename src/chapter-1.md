@@ -1,5 +1,3 @@
-Introduction
-============
 
 Creativity is an essential ingredient for success in any field, from art to science to business. However, many people struggle to tap into their creative potential and come up with innovative ideas. The Science of Creativity: Understanding How Your Brain Works to Improve Your Concentration and Innovation is a guidebook that explores the science behind creativity and provides practical tips for enhancing your own creative abilities.
 
@@ -19,5 +17,4 @@ The Role of The Science of Creativity
 The Science of Creativity aims to bridge the gap between scientific research and practical application, providing readers with a comprehensive understanding of how creativity works in the brain and actionable strategies for enhancing their own creativity. By exploring topics such as neural networks, cognitive flexibility, and divergent thinking, this book offers insights into the inner workings of the creative mind and provides tips for overcoming common obstacles to creativity.
 
 Whether you're an artist, scientist, entrepreneur, or anyone looking to enhance their creative abilities, The Science of Creativity offers a roadmap for unlocking your full potential.
-
 

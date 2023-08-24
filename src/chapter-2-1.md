@@ -1,5 +1,3 @@
-How the Brain Works During Creative Thinking
-=====================================================
 
 In this chapter, we will explore the fascinating workings of the brain during creative thinking. By understanding the neural mechanisms behind creativity, we can gain insights into how to optimize our cognitive processes and enhance innovation.
 

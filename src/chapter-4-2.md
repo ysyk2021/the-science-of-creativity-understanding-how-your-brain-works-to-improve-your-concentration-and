@@ -1,5 +1,3 @@
-Encouraging Curiosity and Exploration
-==============================================
 
 In this chapter, we will delve into the importance of fostering curiosity and exploration to enhance creativity. By nurturing a curious mindset and actively seeking new experiences, you can unlock your creative potential and generate innovative ideas.
 
